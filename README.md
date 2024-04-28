@@ -1,4 +1,4 @@
-Salut, je suis Mouhamadou Mansour Fall informaticient, développeur web et infographe.
+Salut, je suis Mouhamadou Mansour Fall informaticien, développeur web et infographe.
 - 👀 Je suis intéressé par le développement web et l'infographie
 - 🌱 Nous sommes tous étudiants alors apprenons ensemble.
 - 💞️ Ecrivez moi pour une colaboration 
